@@ -185,7 +185,7 @@ CBSE under the **Skill India initiative**, covering:
 
 📍 **Vidisha, Madhya Pradesh, India**
 
-📧 **Email:** 166282tiwari@gmail.com
+📧 **Email:** harshtiwari8543@gmail.com
 
 🔗 **LinkedIn:**  
 https://www.linkedin.com/in/harsh-tiwari-052303325
